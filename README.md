@@ -1,2 +1,3 @@
-![image](https://github.com/BossJEB/BossJEB/assets/152276987/0e75ded6-374d-45b6-a7ff-a3356b016d1d)
+![image](https://github.com/BossJEB/BossJEB/assets/152276987/f478f695-72c1-407f-99bf-92634da437e8)
+
 
